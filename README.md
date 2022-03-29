@@ -1,1 +1,1 @@
-# zyw i'll watting for you forever.
+# zyw i'll waiting for you forever.
